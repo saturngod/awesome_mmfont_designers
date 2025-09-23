@@ -4,3 +4,4 @@
 - [Phoenix Digital Art](https://www.facebook.com/PhoenixDigitalArt/)
 - [Zinbo Design](https://www.facebook.com/zinbo.design/)
 - [KoZ font](https://www.facebook.com/KoZfont)
+- [Moe Zed](https://t.me/moezed)
