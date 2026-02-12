@@ -5,3 +5,4 @@
 - [Zinbo Design](https://www.facebook.com/zinbo.design/)
 - [KoZ font](https://www.facebook.com/KoZfont)
 - [Moe Zed](https://t.me/moezed)
+- [Prahita, Masterpiece](https://sourceforge.net/projects/prahita/)
